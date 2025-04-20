@@ -3,4 +3,4 @@
 PROJETO
 
 
-[Design sem nome (2).zip](https://github.com/user-attachments/files/19825506/Design.sem.nome.2.zip)
+![Design sem nome (5)](https://github.com/user-attachments/assets/75e95580-f245-4bc5-bd98-1e1c724b46e2)
