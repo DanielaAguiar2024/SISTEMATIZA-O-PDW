@@ -2,5 +2,4 @@
 
 PROJETO
 
-
-[Design sem nome (2).zip](https://github.com/user-attachments/files/19825506/Design.sem.nome.2.zip)
+![Design sem nome (5)](https://github.com/user-attachments/assets/dbb6c957-87c6-40f8-89ac-03368834a0f0)
